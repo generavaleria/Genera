@@ -1,1 +1,5 @@
-# Genera
+# Genera valeria
+##bem vindo ao conhecimento
+🫀
+⚓
+⛹️‍♂️
